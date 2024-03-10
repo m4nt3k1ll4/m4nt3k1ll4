@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @m4nt3k1ll4
+- 👀 I’m interested in learn dev skills
+- 🌱 I’m currently learning html css JS 
+- 💞️ I’m looking to collaborate on learning projects
+- 📫 How to reach me juanchin23ad@gmail.com
+- 😄 Pronouns: me 
+- ⚡ Fun facts: my kittens
